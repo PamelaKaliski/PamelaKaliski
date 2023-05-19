@@ -6,6 +6,7 @@
 - 💼 Atualmente sou estágiaria de Operações na Kenzie Academy Brasil.
 - 📫 Como chegar até mim:
       Linkedin: https://www.linkedin.com/in/pamela-gabrielle-kaliski-lopes-57025b1a8/
+      
       E-mail: pamelagklopes@gmail.com
 
 "Sem dados, você é apenas mais uma pessoa com uma opinião." - W. Edwards Deming
